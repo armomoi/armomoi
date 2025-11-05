@@ -11,7 +11,7 @@
 
 ₀₃ bunny cat thing
 
-₀₄ ok w/ source doubles !!
+₀₄ genderfluid she/they/he!!
 
 ₀₅ source + media mates please int <3
 
