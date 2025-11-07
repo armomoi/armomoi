@@ -5,6 +5,8 @@
 
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 
+![](https://files.catbox.moe/ktp3js.gif) ![](https://files.catbox.moe/p0h0pw.gif) ![](https://files.catbox.moe/ktp3js.gif)
+
 ₀₁ Airi Momoi irl || Shizuyume so its just shizuai
 
 ₀₂ friend reqs on ponytown Ok ask 4 disc!
