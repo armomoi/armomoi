@@ -8,6 +8,8 @@
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
+INFP
+
 shizu yume | Airi irl
 
 I have pony town on my 2nd monitor so i will usually see if you want to int !!
