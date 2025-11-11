@@ -38,5 +38,5 @@ I love all these songs but may remove/add anything at anytime
 
 Please listen to luvcat you wont regret it
 
-![](https://open.spotify.com/playlist/42mKOetoow7TEaoNzUusSz?si=752727f1d9864c6b)
+https://open.spotify.com/playlist/42mKOetoow7TEaoNzUusSz?si=752727f1d9864c6b
 
