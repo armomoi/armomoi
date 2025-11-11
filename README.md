@@ -38,5 +38,15 @@ I love all these songs but may remove/add anything at anytime
 
 Please listen to luvcat you wont regret it
 
-https://open.spotify.com/playlist/42mKOetoow7TEaoNzUusSz?si=752727f1d9864c6b
+https://open.spotify.com/playlist/42mKOetoow7TEaoNzUusSz
+
+⤷ ゛──── ୨୧ ──── ˎˊ˗
+
+![](https://files.catbox.moe/plu2cm.png)
+
+if we are sitting in a spot youw ant, just ask don't cover us
+
+please don't interact if you intend to start drama <3
+
+
 
