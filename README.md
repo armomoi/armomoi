@@ -44,9 +44,13 @@ https://open.spotify.com/playlist/42mKOetoow7TEaoNzUusSz
 
 ![](https://files.catbox.moe/plu2cm.png)
 
-if we are sitting in a spot youw ant, just ask don't cover us
+if we are sitting in a spot you want, just ask don't cover us
 
 please don't interact if you intend to start drama <3
+
+I think that is all for now!! 
+
+﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒﹒⭒﹒⭒﹒⭒﹒
 
 
 
