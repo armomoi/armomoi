@@ -22,6 +22,11 @@ You will mostly see me in my streamer avatar that mafuyu made for me <3
 
 ![](https://files.catbox.moe/jfjmbi.gif)
 
+If I am fully hiding behind someone and only showing my tail that usually means I am overwhealmed and don't feel very talkative so don't expect me to respond <3
+
+If i see a friend though I may go up and boop them to say hi :D
+
+
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 ![](https://files.catbox.moe/8mq4s3.png)
