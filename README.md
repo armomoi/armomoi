@@ -10,7 +10,7 @@
 
 shizu yume | Airi irl
 
-I have pony toen on my 3nd monitor so i will usually see if you want to int !!
+I have pony town on my 2nd monitor so i will usually see if you want to int !!
 
 I mostly sit in the prsk area but I may move to the dandys world/roblox areas on some days!
 
